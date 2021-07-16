@@ -1,0 +1,7 @@
+- Hi, I’m @8Chronox8 (Newbie)
+- I’m interested in build my own game
+- I’m currently learning programming
+- I’m looking to collaborate on with friends, if they also want to create a game
+- I love Voxel- and Pixelart Games
+- Terraria - Stardew Valley
+- If you are interested, contact me on Discord "ChronOx - 桜・錯覚#2379"
